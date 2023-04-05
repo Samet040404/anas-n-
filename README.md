@@ -1,4 +1,6 @@
 # anas-n-
 
 
-deli anasını sattığım.
+ sattığım.
+jbjgcgcl
+vghvjvj
